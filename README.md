@@ -1,3 +1,1 @@
-(ﾉ>ω<)ﾉ I like to code and stuff
-<br/>
--4+ years of coding experience
+I like to code in the rain so they cant see me crying
